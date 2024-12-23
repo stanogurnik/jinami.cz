@@ -1,0 +1,1 @@
+# jinami.cz
